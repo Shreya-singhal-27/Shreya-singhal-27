@@ -1,4 +1,4 @@
-**Shreya Singhal**  
+### Hi there, I'm Shreya Singhal  
 🚀 Aspiring Software Engineer | AI Enthusiast | Full-Stack Developer
 
 ---
