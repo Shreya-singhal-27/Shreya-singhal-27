@@ -60,7 +60,7 @@ Vanderlande Logistics India Pvt. Ltd. (May 2025 – June 2025)
 ### 📫 Let’s Connect
 
 - Email: shreyasinghal2705@gmail.com
-- LinkedIn: [shreya-singhal-27](https://www.linkedin.com/in/shreya-singhal-27)
+- LinkedIn: [shreya-singhal-27](https://www.linkedin.com/in/shreya-singhal-46a235bd9/)
 - GitHub: [Shreya-singhal-27](https://github.com/Shreya-singhal-27)
 
 ---
